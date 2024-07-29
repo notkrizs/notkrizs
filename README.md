@@ -2,7 +2,7 @@
 - 👀 I’m interested in books, journals, history, movies like 'Pearl' and different genres of music.
 - 🌱 I’m currently learning how to code.
 - 💞️ I’m single hahah.
-- 📫 How to reach me? just dm me through this email: christabonita07@gmail.com
+- 📫 How to reach me? just dm me through this email: krissfave@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I like cutting my hair when I'm bored then regret it after.
 
