@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @notkrizs, just call me kriss.
 - 👀 I’m interested in books, journals, history, movies like 'Pearl' and different genres of music.
 - 🌱 I’m currently learning how to code.
-- 💞️ I DON'T LIKE PEOPLE SO YES, SINGLE.
+- 💞️ NOP.
 - 📫 How to reach me? just dm me through this email: krissfave@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Cutting my hair when I'm bored then regret it after(not so fun fact).
